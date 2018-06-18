@@ -1,1 +1,6 @@
 # Hello-world
+Hi rest of the World:
+
+I am a big fan of Elon musk and Jeff Bezos (ma username sums it up fa you guyz) and what else......
+I love to read about new things ,recent addiction is Blockchain,IOT,obviously Industry4.0(coz am in Deutschland yaaaa hooooooo)  ....
+Started Github coz Microsoft bought it fa 7.5billion dollars
